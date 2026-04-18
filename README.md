@@ -1,3 +1,4 @@
+[MILESTONE REPORT 2- MICRO PROJECT 2.docx](https://github.com/user-attachments/files/26853443/MILESTONE.REPORT.2-.MICRO.PROJECT.2.docx)
 <!DOCTYPE html>
 <html lang="en">
 <head>
